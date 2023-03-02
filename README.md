@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Starting my journey in software Development, ready to learn and assist 
+I am Starting my journey in software Development, ready to learn. 
 
 
 ## 🌐 Socials:
